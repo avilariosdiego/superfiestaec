@@ -1,2 +1,0 @@
-# superfiestaec
-Super Fiesta EC
